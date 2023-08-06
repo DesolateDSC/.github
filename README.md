@@ -1,2 +1,2 @@
-# Here you can find projects created by DesolateDSC. 
-### You can help us by joining our [discord server](https://discord.gg/wjCMmS2Njw)
+# Здесь вы можете найти проекты созданные нашим дискорд комьюнити
+### По желанию вы можете зайти на наш [дискорд сервер](https://discord.gg/wjCMmS2Njw)
